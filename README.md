@@ -8,4 +8,4 @@
 - Compatible with all mobile devices and with a beautiful and pleasant user interface.
 
 
-![plants website](/preview.png)
+![plants website](/[preview.png](https://www.timeoutdubai.com/cloud/timeoutdubai/2021/09/11/hfpqyV7B-IMG-Dubai-UAE.jpg))
